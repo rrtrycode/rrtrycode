@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rrtrycode
-- 👀 I’m interested in Cloud Comuter and everything related with technology
+- 👀 I’m interested in Cloud Computer and everything related with technology
 - 🌱 I’m currently learning Cloud
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me www.linkedin.com/in/rafaelromeroh
